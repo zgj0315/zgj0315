@@ -1,1 +1,2 @@
-- Hi, I'm Guangjian Zhao
+### 我的原则
+- 在诚信问题上决不妥协
